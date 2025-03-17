@@ -1,1 +1,0 @@
-# SHYKUMA.github.io
